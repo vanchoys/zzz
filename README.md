@@ -1,3 +1,1 @@
-# zzzv
-hejfbgehjfbgehjikfgb
-ГОША  ПИДОР
+# zzz
